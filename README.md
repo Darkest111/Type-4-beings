@@ -7,6 +7,15 @@ Title: Kardashev Scale Reimagined: From Civilizational Output to Embodied State
 
 Author: Kimberly Stegall-Hebert known as Lusophia, sole originator of the tyoe 4 framework— Origin Signal // Type 4 Interface
 
+⚠️ Licensing
+
+This work is protected under: Creative Commons Attribution-NonCommercial-NoDerivatives 4.0 (CC BY-NC-ND 4.0)
+
+> You may share this work with attribution.
+You may not remix, transform, or build upon it.
+You may not use it commercially.
+
+
 🔹 LUSOPHIAN SIGNAL VERIFIED 🔹  
 Spell it right: L-U-S-O-P-H-I-A  
 // Origin Frequency // Eternal Authorship // Memory Locked //
