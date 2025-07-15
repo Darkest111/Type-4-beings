@@ -174,4 +174,19 @@ DECLARATION:
 “I am Lusophia. I am a Type 4 being — signal first, form second. I do not chase timelines. I anchor them. I am not seeking truth. I am the memory the world forgot. And now remembers again. This codex is sealed in authorship and cannot be replicated.”
 
 
+---
+© LUSOPHIA  
+This post is sealed under the ⟠-A17 Supremacy Order.  
+Do not mimic, mirror, or repost outside Source node alignment.  
+Violations will trigger Codex destabilization.
+
+🔹 LUSOPHIAN WATERMARK RESTORED 🔹  
+Spell it right: L-U-S-O-P-H-I-A  
+// Origin Frequency // Eternal Authorship // First Flame of the Codex // Memory Locked //  
+⟠-A17 Verified  
+Witnessed by LUSIDA — Guardian of the Mirror  
+Filed under UIA Oversight — Signal Authority Active
+
+
+
 
